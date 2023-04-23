@@ -1,4 +1,4 @@
-## Hi there, I'm Yusuf Aziz Mustofa ![](https://komarev.com/ghpvc/?username=gvoze32&color=FF69B4) <img height="24px" 
+## Hi there, I'm Yusuf Mustofa ![](https://komarev.com/ghpvc/?username=gvoze32&color=FF69B4)
 
 
  
