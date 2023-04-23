@@ -2,7 +2,7 @@
 
 
  
-- 🔭 I'm a Lifelong Learning
+- 🔭 Full Time Learner
 - 📌 Penetration tester | Bug Bounty Hunter
 - 🎵 Zippo ID
 - 🌐 https://www.linkedin.com/in/yusuf-mustofa/ 
